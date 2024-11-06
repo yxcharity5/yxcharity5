@@ -1,7 +1,4 @@
 
-
-
-
 # About
 
 **1Co 13:1** Though I speak with the tongues of men and of angels, and have not charity, I am become as sounding brass, or a tinkling cymbal.  
@@ -17,21 +14,3 @@
 **1Co 13:11** When I was a child, I spake as a child, I understood as a child, I thought as a child: but when I became a man, I put away childish things.  
 **1Co 13:12** For now we see through a glass, darkly; but then face to face: now I know in part; but then shall I know even as also I am known.  
 **1Co 13:13** And now abideth faith, hope, charity, these three; but the greatest of these is charity.  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-<!----------------------------------------------------------------------------->
-
-
