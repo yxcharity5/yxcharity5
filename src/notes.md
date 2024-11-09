@@ -7,6 +7,8 @@
 
 **Psa 119:96** I have seen an end of all perfection: but thy commandment is exceeding broad.  
 
+**Psa 56:3** What time I am afraid, I will trust in thee.
+
 <!--
 * // ..
 * // .. ..2 . ..
