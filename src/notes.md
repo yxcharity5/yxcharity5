@@ -9,6 +9,8 @@
 
 **Psa 56:3** What time I am afraid, I will trust in thee.
 
+**Psa 94:19** In the multitude of my thoughts within me thy comforts delight my soul.  
+
 <!--
 * // ..
 * // .. ..2 . ..
