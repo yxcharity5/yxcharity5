@@ -11,6 +11,8 @@
 
 **Psa 94:19** In the multitude of my thoughts within me thy comforts delight my soul.  
 
+**Psa 86:7** In the day of my trouble I will call upon thee: for thou wilt answer me.  
+
 <!--
 * // ..
 * // .. ..2 . ..
