@@ -5,6 +5,8 @@
 
 **Psa 91:1** He that dwelleth in the secret place of the most High shall abide under the shadow of the Almighty.  
 
+**Psa 119:96** I have seen an end of all perfection: but thy commandment is exceeding broad.  
+
 <!--
 * // ..
 * // .. ..2 . ..
