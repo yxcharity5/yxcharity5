@@ -13,6 +13,8 @@
 
 **Psa 86:7** In the day of my trouble I will call upon thee: for thou wilt answer me.  
 
+**Isa 64:4** For since the beginning of the world men have not heard, nor perceived by the ear, neither hath the eye seen, O God, beside thee, what he hath prepared for him that waiteth for him.  
+
 <!--
 * // ..
 * // .. ..2 . ..
