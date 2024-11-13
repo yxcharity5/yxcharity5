@@ -15,6 +15,8 @@
 
 **Isa 64:4** For since the beginning of the world men have not heard, nor perceived by the ear, neither hath the eye seen, O God, beside thee, what he hath prepared for him that waiteth for him.  
 
+**Psa 68:5** A father of the fatherless, and a judge of the widows, is God in his holy habitation.  
+
 <!--
 * // ..
 * // .. ..2 . ..
