@@ -17,6 +17,8 @@
 
 **Psa 68:5** A father of the fatherless, and a judge of the widows, is God in his holy habitation.  
 
+**Psa 34:22** The LORD redeemeth the soul of his servants: and none of them that trust in him shall be desolate.  
+
 <!--
 * // ..
 * // .. ..2 . ..
